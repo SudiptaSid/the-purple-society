@@ -1,2 +1,2 @@
-# the-purple-society
+# The Purple Society
  
